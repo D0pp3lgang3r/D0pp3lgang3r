@@ -1,6 +1,6 @@
 # D0pp3lgang3r
 
-<img src="https://c.tenor.com/V1MU85obACAAAAAd/berserk-guts.gif" width=450 />
+<img src="https://media.tenor.com/XT7dSwCj0JwAAAAd/kenzou-tenma-monster-anime.gif" width=450 />
 
 
 
