@@ -1,6 +1,6 @@
 # D0pp3lgang3r
 
-<img src="https://media.tenor.com/XT7dSwCj0JwAAAAd/kenzou-tenma-monster-anime.gif" width=450 />
+<img src="https://media.tenor.com/qcolBcAm_x4AAAAC/blackbeard-kurohige.gif" width=450 />
 
 
 
