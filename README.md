@@ -1,6 +1,6 @@
 # D0pp3lgang3r
 
-<img src="https://media.tenor.com/qcolBcAm_x4AAAAC/blackbeard-kurohige.gif" width=450 />
+<img src="https://media1.tenor.com/m/5S2LTH4lxmoAAAAC/one-piece-egghead.gif" />
 
 
 
