@@ -6,6 +6,7 @@
 
 **🎓 French Polytech student and cybersecurity enthusiast.**
 - Here is my root me : [D0pp3lgang3r](https://www.root-me.org/D0pp3lgang3r)
+<img src="https://root-me-badge.cloud.duboc.xyz/storage_clients/2129042612ea7e2a6270cbdfbb2c7660/static_badge_dark.png" />
 - Here is my Offensive wave account : [D0pp3lgang3r](https://offensivewave.com/badge.php?user=D0pp3lgang3r)
 ## I mainly work with
 - ![C](https://img.shields.io/badge/-C-red?style=for-the-badge&logo=c&logoColor=white)
